@@ -1,22 +1,27 @@
 
 
-<p align="center"> <img width="700" height="700" alt="Untitled180_20260118140517" src="https://github.com/user-attachments/assets/45f00d0e-b999-49b3-bc3e-f2fe01c86fa7" />
+<img width="1280" height="409" alt="tumblr_9aab035b7d791227d7574971ae26bf8c_58888ada_1280" src="https://github.com/user-attachments/assets/8ca07010-e49e-4524-aea9-c207f6b27bd3" />
 
 
 
-   <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=d1d9e3&background=f6b2be600&width=435&lines=If+there+was+a+choice+To+be+scraping+by-y;On+my+own+time+I'd+be+stranded+on+i-isles,;been+walking+for+miles;As+it+seems+by+the+sea+I'm+afraid+it'll+stick+permanently;If+I+don't+move+and+I+can't+see;I+choose+the+latter,+choose+the+latter;If+I+can+fall+and+I+can't+breathe;I+chute+the+latter,+chute+the+latter;If+I+can+move+and+I+can't+speak;I+choose+the+latter+choose+the+latter;Why+can't+I+afford+my+dream;I+choose+the+latter,+choose+the+latter;If+there+was+a+voice+I+can+hear+it+all+night,+'ight;Get+it+out+now+Just+hope+for+the+best,;best+and+hope+for+nuance+And+she+sings+by+the+sea;It's+a+shame,+crying+shame+permanently;If+I+don't+move+and+I+can't+see;I+choose+the+latter,+choose+the+latter;If+I+can+fall+and+I+can't+breathe;I+chute+the+latter,+chute+the+latter;When+it+all+points+at+me;I+choose+the+latter,+choose+the+latter;Why+spend+the+night+alone+when+we;can+lose+tomorrow?+(Ooh-ooh)+(Ooh-ooh)." alt="Typing SVG" />
+   <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=d1d9e3&background=f6b2be600&width=435&lines=We're+Revamping+Stay+Tuned." alt="Typing SVG" />
 
 <p align="center">${\textsf{\color{#c2ccda}The ✧ Unkn0wn ✧ Syst3m!~ }}$
 
-<p align="center">${\textsf{\color{#b3bfd1}4teen-7teen + Suspected DID/OSDD System }}$
+<p align="center">${\textsf{\color{#b3bfd1} WIP }}$
 
- <p align="center">${\textsf{\color{#a4b2c8} We Hide / block freely + Iwec with fictives }}$
+ <p align="center">${\textsf{\color{#a4b2c8} WIP }}$
 
 <p align="center">${\textsf{\color{#95a5bf} Axel / Unkn0wn collective + He/Him + Masc/Nh Trms only }}$
  
- <p align="center">${\textsf{\color{#8599b5} Basic dni criteria + dating Kai < 3 + read strawpage for dni n Int + Non-sharing Yume of Finn wolfhard himself }}$
+ <p align="center">${\textsf{\color{#8599b5} WIP }}$
 </details>
 
- 
+ <img width="350" height="200" alt="Sourcemate" src="https://github.com/user-attachments/assets/4a1f5210-ca1c-44d3-ad29-8b82fa888a9b" /> <img width="350" height="200" alt="Interruption" src="https://github.com/user-attachments/assets/5fff25cd-3f43-44f2-8818-e174981ec000" /> <img width="350" height="200" alt="Nap" src="https://github.com/user-attachments/assets/1e3e6471-57b2-4ec9-bc0d-8d8561d20fde" /> <img width="350" height="200" alt="Jax-userbox2" src="https://github.com/user-attachments/assets/bfd83928-94a0-45a3-9113-76e6d53c55cf" /> <img width="350" height="200" alt="Jax-userbox1" src="https://github.com/user-attachments/assets/8e397fd6-f268-4643-a092-90bfae92e194" />
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=The-Forest-Syst3m&color=768cac&style=for-the-badge&label=++++++saplings++++++&base=4274"></img></p>
+<img width="1280" height="409" alt="tumblr_2f77810f0882ef86f7f43dc740015433_810877a7_1280" src="https://github.com/user-attachments/assets/b19ece63-43cb-48d9-921e-b2e69a852a20" />
+
+
+
+
+
