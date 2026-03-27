@@ -6,7 +6,7 @@
 
    <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=d1d9e3&background=f6b2be600&width=435&lines=We're+Revamping+Stay+Tuned." alt="Typing SVG" />
 
-<p align="center">${\textsf{\color{#c2ccda}The ✧ Unkn0wn ✧ Syst3m!~ }}$
+<p align="center">${\textsf{\color{#c2ccda} Unkn0wn ✧ GLITCHES !~ }}$
 
 <p align="center">${\textsf{\color{#b3bfd1} WIP }}$
 
