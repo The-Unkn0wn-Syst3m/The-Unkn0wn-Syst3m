@@ -8,13 +8,13 @@
 
 <p align="center">${\textsf{\color{#c2ccda} Unkn0wn ✧ GLITCHES !~ }}$
 
-<p align="center">${\textsf{\color{#b3bfd1} WIP }}$
+<p align="center">${\textsf{\color{#b3bfd1} Perma17/19 + Transmasc }}$
 
- <p align="center">${\textsf{\color{#a4b2c8} WIP }}$
+ <p align="center">${\textsf{\color{#a4b2c8} An Studio of 180 Glitches }}$
 
-<p align="center">${\textsf{\color{#95a5bf} Axel / Unkn0wn collective + He/Him + Masc/Nh Trms only }}$
+<p align="center">${\textsf{\color{#95a5bf} Axel / Unkn0wn collective ✧ He/Him ✧ Masc/Nh Trms only }}$
  
- <p align="center">${\textsf{\color{#8599b5} WIP }}$
+ <p align="center">${\textsf{\color{#8599b5} Look at Strawpage for Info ✧ Note its best viewed on an Computer/Laptop }}$
 </details>
 
  <img width="350" height="200" alt="Sourcemate" src="https://github.com/user-attachments/assets/4a1f5210-ca1c-44d3-ad29-8b82fa888a9b" /> <img width="350" height="200" alt="Interruption" src="https://github.com/user-attachments/assets/5fff25cd-3f43-44f2-8818-e174981ec000" /> <img width="350" height="200" alt="Nap" src="https://github.com/user-attachments/assets/1e3e6471-57b2-4ec9-bc0d-8d8561d20fde" /> <img width="350" height="200" alt="Jax-userbox2" src="https://github.com/user-attachments/assets/bfd83928-94a0-45a3-9113-76e6d53c55cf" /> <img width="350" height="200" alt="Jax-userbox1" src="https://github.com/user-attachments/assets/8e397fd6-f268-4643-a092-90bfae92e194" />
