@@ -6,7 +6,7 @@
 
    <p align="center"> <Img src="https://readme-typing-svg.demolab.com?font=Sansita&size=20&duration=3000&pause=200&color=d1d9e3&background=f6b2be600&width=435&lines=You+Have+To+Listen+to+Me,+I+Love+You+Because+I'm+Selfish." alt="Typing SVG" />
 
-<p align="center">${\textsf{\color{#c2ccda} Unkn0wn ✧ GLITCHES !~ }}$
+<p align="center">${\textsf{\color{#c2ccda} Unkn0wn ✧ Studio !~ }}$
 
 <p align="center">${\textsf{\color{#b3bfd1} Perma17/19 + Transmasc }}$
 
